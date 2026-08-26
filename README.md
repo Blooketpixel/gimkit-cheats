@@ -1,2 +1,2 @@
 # gimkit-cheats
-Gimkit cheats 
+Gimkit cheats(not all work ps)
